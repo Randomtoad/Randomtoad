@@ -1,7 +1,4 @@
-- Wsg I'm Randomtoad, but I go by fever/toad!
-- Currenty learning how to code/program, draw and how to make 3D models.
-- You can reach me through discord via f3ver_dr3ams!
-<!---
-Randomtoad/Randomtoad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- free me of this torment dawg 💔
+- broke student trying to manage all their ambitions while constantly being crushed by limitations ✌️💔
+- writer in free time who also happens to dabble in lots of different other creative mediums
+- if you happen to know who i am somehow, no you dont. 
