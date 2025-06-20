@@ -1,4 +1,4 @@
-broke struggling ambitious teenager tries to learn smth because of donatello from tmnt 💔
+broke struggling ambitious TEENAGER (<--aggressive pointing) tries to learn smth because of donatello from tmnt 💔
 
 any/all prns, v preferred if u switch thru them while talking tho ^_^
 
